@@ -1,2 +1,5 @@
-# Lopik.github.io
-Kolis
+# moja strona internetowa 
+ fajnie 
+ pozdrawiam
+ czemu
+ 
